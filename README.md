@@ -1,5 +1,5 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<h1 align="center"><b>𝘽𝙇𝘼𝘾𝙆 𝙋𝘼𝙉𝙏𝙃𝙀𝙍 𝙈𝘿 ✅𝗩𝗫5</b>
+<h1 align="center"><b>YONAH RAJ ✅𝗩𝗫5</b>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <p align="center">
   <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Time+New+Roman&color=cyan&size=25&center=true&vCenter=true&width=600&height=100&lines=Am+Black+Panther+MD+Created+By+Ibrahim..&heart;++;Self-taught+Back-Created+By,;Ibrahim+Adams+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
@@ -10,10 +10,10 @@
  
 ![Aaaaand many more](res/readme/context.gif)
 
- ## Join my channel for updates and get free cc
+ ## Join my whatsapp group
 
 
-<a href="https://whatsapp.com/channel/0029VaZuGSxEawdxZK9CzM0Y" target="_blank">
+<a href="https://chat.whatsapp.com/Dm5d33VvkruASkYBXVBESK" target="_blank">
     <img alt="whatsapp Group" src="https://img.shields.io/badge/ Whatsapp Support Channel -25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
   </a>
 </p>
@@ -24,10 +24,10 @@
  ## .1 Star ✨ repo up there ☝️
  
 # 
-<a href="https://github.com/ibrahimaitech/BLACK-PANTHER-XMD/fork"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/FORK-REPO -h?color=black&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
+<a href="https://github.com/ibrahimaitech/YONAH-RAJ-XMD/fork"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/FORK-REPO -h?color=black&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
  
 # 
-<a href="https://ibrahim-adams.onrender.com"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/GET SESSION -h?color=red&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
+<a href="https://yonah-raj.onrender.com"><img title="Tap Here Open Session Site" src="https://img.shields.io/badge/GET SESSION -h?color=red&style=for-the-badge&logo=msi" width="220" height="38.45"/></a></p>
 
 # 
 
@@ -44,12 +44,12 @@
 <br>
 
 # 
-<p align=""><a href="https://repl.it/github/ibrahimaitech/BLACK-PANTHER-MD"> <img src="https://img.shields.io/badge/replit%20Deploy-blue?style=for-the-badge&logo=replit" width="220" height="38.45"/></a>
+<p align=""><a href="https://chat.whatsapp.com/Dm5d33VvkruASkYBXVBESK-MD"> <img src="https://img.shields.io/badge/replit%20Deploy-blue?style=for-the-badge&logo=replit" width="220" height="38.45"/></a>
 
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
+<a><'/></a>
 
- ## How To Deploy Black Panther
+ ## How To Deploy YONAHRAJ BOTS
  
 𝙵𝙸𝚁𝚂𝚃 𝙵𝙾𝚁𝙺 𝚃𝙷𝙴 𝚁𝙴𝙿𝙾.
 
@@ -75,13 +75,8 @@
 | Various Games                    | Enjoy a variety of games within the bot                 | ✅           | 2.0        |
 | Audio/Video Editor Commands      | Edit audio and video files with bot commands            | ✅           | 2.0        |
 
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<br/> <div align="center">
-[![github](https://github.com/github.png?size=100)](https://github.com/ibrahimaitech)[![Heroku](https://github.com/heroku.png?size=100)](#click-here-to-deploy)[![replit](https://github.com/replit.png?size=100)](https://github.com/ibrahimaitech) [![whatsapp](https://github.com/whatsapp.png?size=89)](https://ibrahimaitech)[![bot](https://github.com/youtube.png?size=89)](https://github.com/ibrahimaitech)[![Heroku](https://github.com/facebook.png?size=89)](https://ibrahimaitech)[![Heroku](https://github.com/instagram.png?size=89)](https://github.com/ibrahimaitech)[![Heroku](https://github.com/you-tube.png?size=89)](https://github.com/ibrahimaitech)<br/>
-</div>
-## 𝙏𝙝𝙖𝙣𝙠𝙨 𝙏𝙤 
+
+## 𝙏𝙝𝙖𝙣𝙠𝙨 𝙏𝙤
 
 [`GOD🙏`]
 
-
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
